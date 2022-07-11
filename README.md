@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mkgautam31102002@gmail.com**
 
-- ⚡ Fun fact **Physics is something that Fascinates a lot**
+- ⚡ Fun fact **Physics is something that Fascinates me a lot**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
